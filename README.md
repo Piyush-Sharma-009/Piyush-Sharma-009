@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Piyush Sharma
-**Aspiring Software Engineer || Full Stack Web Development **
+Aspiring Software Engineer || Full Stack Web Development
 
 Email Me 👉 ✉️ **piyushsh009@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
